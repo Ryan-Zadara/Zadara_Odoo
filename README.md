@@ -1,0 +1,1 @@
+# Zadara_Odoo
